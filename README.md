@@ -1,10 +1,10 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Prem Chikode
+Hi! My name is Prem Chikode :)
 ====================================================================================================================================
 
-CURIOUSITY & QUESTIONS WILL GET YOU FURTHER THAN CONFIDENCE AND ANSWERS!
+"Curiousity & questions will get you further than confidence and answers!"
 ------------------------
 
-A pre-final year undergraduate student who loves exploring new domains!
+A Final year undergraduate student who loves exploring new domains!
 
 * 🌍  I'm based in Pune.
 * ✉️  You can contact me at [chikodeprem3004@gmail.com](mailto:chikodeprem3004@gmail.com)
